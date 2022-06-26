@@ -20,7 +20,7 @@ The security of your personal information is important to me, but remember that 
 
 ## Changes To This Privacy Policy
 
-This Privacy Policy is effective as of 10/01/2021 and will remain in effect except with respect to any changes in its provisions in the future, which will be in effect immediately after being posted on this page.
+This Privacy Policy is effective as of 26/06/2022 and will remain in effect except with respect to any changes in its provisions in the future, which will be in effect immediately after being posted on this page.
 
 I reserve the right to update or change my. Privacy Policy at any time and you should check this Privacy Policy periodically.
 
